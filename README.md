@@ -1,4 +1,4 @@
-# Hi, I'm guruolan18 👋
+# Hi, I'm guruolan 👋
 
 Recovering from being a potato, trying very hard not to be useless.
 
